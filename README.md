@@ -1,1 +1,1 @@
-# X-y-d-ng-h-th-ng-qu-n-l-nh-n-s-cho-cty
+# Xay dung he thong nhan su cho cty
